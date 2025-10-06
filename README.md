@@ -1,7 +1,7 @@
 # duel.com
 Duel.com – The World’s #1 Online Gaming Platform with 99% RTP
 
-👉 [https://duel.com](https://duel.com/r/rtp99)  - "LIVE"
+👉 [https://duel.com](https://duel.com/r/rtp99)  - ✅ LIVE✅ 
 
 **Duel.com – The World’s #1 Online Gaming Platform with 99% RTP**
 
